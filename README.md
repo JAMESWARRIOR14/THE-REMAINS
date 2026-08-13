@@ -23,7 +23,7 @@
 
 `                                    `
 
-$\text{\color{#ff0000}*𝕿E,LL M E I M REAL**}$
+$\text{\color{#ff0000}**𝕿E,LL M E I M REAL**}$
 
 
 `                                    `
