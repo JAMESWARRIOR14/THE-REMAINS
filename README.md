@@ -3,7 +3,7 @@
 
 `                                    `
 
- $\text{\color{#74737a}C O NS CI OU S NES S.}$
+ $\text{\color{#74737a}𝕮 O NS CI OU S NES S.}$
 
  `                                    `
  
@@ -12,18 +12,18 @@
 
 `                                    `
 
-   $\text{\color{#c40404}"ARE YOU STUPID"}$
+   $\text{\color{#c40404}"𝕬RE YOU STUPID"}$
   
-   $\text{\color{#020fa6}—JAMESWARRIOR.}$
+   $\text{\color{#020fa6}—𝕵AMESWARRIOR.}$
 
 `                                    `
 
 
-[m y at a boo ,k.](https://deivydoestutorials33.atabook.org/)
+[𝕸 y 𝕬t a boo ,k.](https://deivydoestutorials33.atabook.org/)
 
 `                                    `
 
-$\text{\color{#ff0000}TE,LL M E I M REAL}$
+$\text{\color{#ff0000}𝕿E,LL M E I M REAL}$
 
 
 `                                    `
@@ -33,9 +33,9 @@ $\text{\color{#ff0000}TE,LL M E I M REAL}$
 
 `                                    `
 
-$\text{\color{#c6adff}"im}$
+$\text{\color{#c6adff}"𝖎m}$
 
-$\text{\color{#8b75bd}so sorry"}$
+$\text{\color{#8b75bd}𝖘o sorry"}$
 
 `                                    `
 
