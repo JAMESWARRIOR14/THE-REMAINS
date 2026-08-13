@@ -5,14 +5,8 @@
  
 ![Project Logo](2799165_23529.png)
     $\text{\color{#c40404}"ARE YOU STUPID"}$
-    
-      $\text{\color{#020fa6}—JAMESWARRIOR.}$
-
-
-
-
-`" I want hair like yours, hands like yours. "`
-
+  
+   $\text{\color{#020fa6}—JAMESWARRIOR.}$
 
 
 
