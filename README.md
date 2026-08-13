@@ -1,2 +1,3 @@
 # THE-REMAINS
 ![Project Logo](Remainstree.webp)
+# $\text{\color{#74737a}C O NS CI OU S NES S.}$
