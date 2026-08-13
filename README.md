@@ -3,7 +3,7 @@
 
 `                                    `
 
- $\text{\color{#74737a}__𝕮 O NS CI OU S NES S.__}$
+ $\text{\color{#74737a}𝕮 O NS CI OU S NES S.}$
 
  `                                    `
  
@@ -14,7 +14,7 @@
 
    $\text{\color{#c40404}"ARE YOU STUPID"}$
   
-   $\text{\color{#020fa6}—_𝕵AMESWARRIOR14_.}$
+   $\text{\color{#020fa6}—𝕵AMESWARRIOR14.}$
 
 `                                    `
 
@@ -23,7 +23,7 @@
 
 `                                    `
 
-$\text{\color{#ff0000}**𝕿E,LL M E I M REAL**}$
+$\text{\color{#ff0000}𝕿E,LL M E I M REAL}$
 
 
 `                                    `
